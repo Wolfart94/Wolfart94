@@ -8,7 +8,7 @@ Minha trajetória profissional despertou meu interesse em utilizar tecnologia pa
 
 ---
 
-## 🚀 Atualmente trabalhando em
+## 🚀 Projetos em destaque:
 
 ### 🧭 ProcessPilot AI
 
