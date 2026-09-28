@@ -103,4 +103,5 @@ Tenho interesse em oportunidades **remotas** e estou aberto a posições de entr
 ### 📫 Contatos
 
 LinkedIn: www.linkedin.com/in/edgarwolfart94 
+
 GitHub: você já está aqui 🙂
